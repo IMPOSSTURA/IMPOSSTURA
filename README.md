@@ -20,6 +20,6 @@ I love coding Discord Bot, cuz I'm abusing Discord xd.</p>
 
 # <div align="center">__**sᴏᴄɪᴀʟ**__</div>
 
-+ Discord - [dsc.bio/imposstura](dsc.bio/imposstura) (IMPOSSTURA#1111)
-+ Telegram - [t.me/imposstura](t.me/imposstura)
-+ VK - [vk.com/imposstura](vk.com/imposstura)
++ Discord - [dsc.bio/imposstura](https://dsc.bio/imposstura) (IMPOSSTURA#1111)
++ Telegram - [t.me/imposstura](https://t.me/imposstura)
++ VK - [vk.com/imposstura](https://vk.com/imposstura)
