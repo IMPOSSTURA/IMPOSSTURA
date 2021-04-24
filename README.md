@@ -9,7 +9,7 @@ I am not a github abuser I just got fed up with posers on discord, who think the
 # <div align="center">__**ᴀʙᴏᴜᴛ ᴍᴇ**__</div>
 
 <p>Wassup, I'm imposstura. <br>
-And I'm in love with minimalismas u see xd).<br>
+And I'm in love with minimalism as u see xd).<br>
 I'm a self-tought JS developer.<br>
 I love coding Discord Bot, cuz I'm abusing Discord xd.</p>
 
