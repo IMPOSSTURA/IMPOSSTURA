@@ -2,10 +2,6 @@
 <img src="https://i.imgur.com/NqLiw1R.gif" align="center" style="width: 100%" />
 </div>  
   
-# <div align="center">__**ɪɴᴛʀᴏ**__</div>
-
-Ah shit, here we go again.
-
 # <div align="center">__**ᴀʙᴏᴜᴛ ᴍᴇ**__</div>
 
 <p>Wassup, I'm imposstura. <br>
