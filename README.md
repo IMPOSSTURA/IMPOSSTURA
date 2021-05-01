@@ -4,7 +4,7 @@
   
 # <div align="center">__**ɪɴᴛʀᴏ**__</div>
 
-I am not a github abuser I just got fed up with posers on discord, who think they are the real shit, even though they are just a bunch of little kids. And I will probably be posting some interesting stuff.
+Ah shit, here we go again.
 
 # <div align="center">__**ᴀʙᴏᴜᴛ ᴍᴇ**__</div>
 
