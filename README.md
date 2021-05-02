@@ -19,3 +19,6 @@ I love coding Discord Bot, cuz I'm abusing Discord xd.</p>
 + Discord - [dsc.bio/imposstura](https://dsc.bio/imposstura) (IMPOSSTURA#3390)
 + Telegram - [t.me/imposstura](https://t.me/imposstura)
 + VK - [vk.com/imposstura](https://vk.com/imposstura)
+
+# <div align="center">__**sᴏᴍᴇ ᴏᴛʜᴇʀ sᴛᴜ🇫‌🇫‌**__</div>
+![lang stats](https://github-readme-stats.vercel.app/api/top-langs/?username=IMPOSSTURA&layout=compact&theme=dark)
